@@ -62,5 +62,5 @@ I almost never play pt but here's the thing anyways
 ***
 ![Wanderer Genshin GIF – Wanderer Genshin Genshin Impact – descoperă și distribuie GIF-uri](https://github.com/windhiro/windhiro/assets/165987285/555c81bd-9b8c-4044-8d64-5b56c8a05e23)
 
-Anyway thanks to my beloved @Ventis-spouse to help me doing this thing
+Anyway thanks to my beloved to help me doing this thing
 
