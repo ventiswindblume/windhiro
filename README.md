@@ -49,7 +49,7 @@ I almost never play pt but here's the thing anyways
 
 -Dont boop me for INT,you can but not if you wanna INT like you can but just when we are already friends or idk to explain this
 
--Cuddle me,cuddle me,cuddle me!! 
+-Cuddle with me,cuddle with me,cuddle with me!! 
 
 -Dont be rude with me
 
